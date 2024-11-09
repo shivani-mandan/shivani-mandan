@@ -17,5 +17,5 @@ I am <a href="www.linkedin.com/in/shivani-mandan">Shivani Mandan</a>, Accomplish
 
 ### 📫 How to reach me?
 
- - Connect with me on [LinkedIn](www.linkedin.com/in/shivani-mandan) 👨🏻‍💻
+ - Connect with me on [LinkedIn](https://www.linkedin.com/in/shivani-mandan/) 👨🏻‍💻
  - Send Me an [Email](mailto:shivani.mandan58@gmail.com) 💌
